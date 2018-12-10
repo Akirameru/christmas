@@ -2,6 +2,9 @@
 
 This list is in no particular order and in no way do I neccessarialy need any of it.
 - [Apple Watch Series 3](https://www.apple.com/shop/buy-watch/apple-watch-series-3/38mm-gps-space-gray-aluminum-black-sport-band)
+- [Vintage Adidas Tokyo Jacket Size Small](https://trendyweeb.net/collections/jackets/products/vintage-tokyo-bomber-jacket)
+- [Japanese HERO Jacket](https://trendyweeb.net/collections/jackets/products/ancient-hero-jacket)
+- [Embroidered Dragon Jacket](https://trendyweeb.net/collections/jackets/products/kinetic-dragon-jacket)
 - [New Tiburon Badge for car](http://www.acrylicconceptions.com/tiburon_t2dgen_wing_emblem.html)
 - [iPhone X Screen Protector](https://www.amazon.com/gp/product/B074YXH9WX/ref=oh_aui_detailpage_o08_s00?ie=UTF8&psc=1)
 - [RISK Board Game](https://shop.hasbro.com/en-us/product/risk-game:2C7C6F52-5056-9047-F5DD-EB8AC273BA4C)
